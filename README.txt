@@ -1,5 +1,1 @@
-Hello! I am @BreakFX
-I like making intro's
-If you would to request one please email: poweros125@gmail.com
-anyhoo please enjoy the software you have or something...
-idk anyway byyeeeeeeeeeeeeeee
+Привет! Меня зовут @BreakFX, и я в основном говорю по-русски, но я также буду говорить по-английски и по-испански. Если вы хотите поговорить со мной на этих языках, скажите об этом.
